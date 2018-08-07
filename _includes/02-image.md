@@ -1,0 +1,1 @@
+![Image of tuxedo cat](https://www.thesprucepets.com/thmb/wgcBi8uWQvCqrxYpyLMvT5XuUBg=/960x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tuxedo-cat-916335_1920-5b4f727946e0fb00376619f6.jpg)
